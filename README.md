@@ -1,16 +1,15 @@
-### Hi there 👋
+# Kunal's TechClass Channel 
 
-<!--
-**KunalPawar0207/KunalPawar0207** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My [YouTube channel](https://www.youtube.com/channel/UCe0SKfmFT8auzAG5A9MSrgA)
 
-Here are some ideas to get you started:
+My [Instagram channel](https://www.instagram.com/kunalstechclass/)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My [GitHub Profile](https://github.com/KunalPawar0207)
+
+# [YouTube](https://www.youtube.com/channel/UCe0SKfmFT8auzAG5A9MSrgA)
+ Hello friends I am Kunal , a young coder. I am a certified game and app developer. And I know many things about technology. I am going to upload video related to coding, latest technology, tips and tricks and many more. I am learning coding from WhiteHat Jr from the month of August and I am going to cover concepts taught me through videos for free. This concept are cover by WhiteHat Jr, Vedantu, CampK12 and more platforms .So give support to me by giving likes, comments and subscribe to my channel to enter into the magical world of coding and many more 
+
+# [Instagram](https://www.instagram.com/kunalstechclass/)
+ Hello friends I am Kunal , a young coder. I am a certified game and app developer. And I know many things about technology. I have a YouTube channel in which i upload videos related to coding, technology and many more . I have made this account so who ever follows me here will get a trailer or teaser of the videos I will upload on YouTube . 
+
+# [GitHub](https://github.com/KunalPawar0207)
