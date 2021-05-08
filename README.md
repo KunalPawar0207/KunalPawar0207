@@ -1,5 +1,5 @@
 # Kunal's Channel 
-[Every Thing abot drawing](linktr.ee/thinkbeyondcolours)
+[Every Thing About drawing](linktr.ee/thinkbeyondcolours)
 
 My [YouTube Channel for Coding](https://www.youtube.com/channel/UCe0SKfmFT8auzAG5A9MSrgA)
 
@@ -21,4 +21,4 @@ Hello friends I am Kunal, who likes to do digital illustration and normal painti
 # [Instagram Drawing](https://www.instagram.com/think_beyond_colours/)
 YouTube channel link 🔗👇
 Subscribe to my channel👇☺️😊
-[Every Thing abot drawing](linktr.ee/thinkbeyondcolours)
+[Every Thing About drawing](linktr.ee/thinkbeyondcolours)
